@@ -1,0 +1,2 @@
+# claudiogoncalves.dev
+Never die
